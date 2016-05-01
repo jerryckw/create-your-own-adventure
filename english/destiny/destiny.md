@@ -22,6 +22,8 @@ and you might be someone [who knocks](../say-my-name/say-my-name.md).
 
 or perhaps you are someone [who opens](https://www.biblegateway.com/passage/?search=Revelation+3%3A20).
 
+But always remember [this](../you-and-now/you-and-now.md).
+
 If you have finished pursuing your destiny, it may be time for a 
 [cold one](../drink-beer/drink-beer.md).
 
